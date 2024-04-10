@@ -1,7 +1,7 @@
 ### Hi there 👋👋
 
 
-<!--q
+<!--qu
 **cqqcww/cqqcww** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profidle.
 
 Here are some ideas to get you started:
