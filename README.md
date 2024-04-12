@@ -1,7 +1,7 @@
 ### Hi there 👋👋
 
 
-<!--qu
+<!--qu;
 **cqqcww/cqqcww** is a ✨ _special_ ✨ repository becausdda
 Here are some ideas to get you started:
 
