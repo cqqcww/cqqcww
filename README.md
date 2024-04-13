@@ -3,7 +3,7 @@
 
 <!--qu;
 **cqqcww/cqqcww** is a ✨ _special_ ✨ repository becausdda
-Here are some ideas to get you started:
+Here are some ideas to get you started:D
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
