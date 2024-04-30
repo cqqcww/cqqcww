@@ -2,7 +2,7 @@
 xs
 
 <!--qu;qwedas
-**cqqcww/cqqcww** is a ✨ _special_ ✨ repository becausddaasdJK
+**cqqcww/cqqcww** is a ✨ _special_ ✨ repository becausddaasdJKdsa
 Here are some ideas to get you started:D
 
 - 🔭 I’m currently working on ...
