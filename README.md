@@ -1,4 +1,4 @@
 ### Hi there 👋👋
 
-pre account /qccqdd (got banneed for certain usage)
+pre account /qccqdd (got banned for certain usage)
 new account for /cqqcww
